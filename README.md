@@ -1,0 +1,2 @@
+# premium-juliet-rail-001-juliet-balcony-rail-wall-mou
+Tired of scattered sticky notes, messy spreadsheets, and forgotten measurements when planning your Juliet balcony rail or wall mount craft projects? This Notion template turns chaos into a streamlined, visual command center so you never lose a bolt, a blueprint, or a deadline again.  The Juliet Balcony Rail &amp; Wall Mount Craft Lab is the only Notion
